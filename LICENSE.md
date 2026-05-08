@@ -1,4 +1,4 @@
-
+steal a brainrot Scripts elite is the best steal a brainrot Script, featuring instant win and speed. Safe and powerful for all your needs.
 
 
 
